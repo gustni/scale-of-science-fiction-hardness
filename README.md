@@ -1,0 +1,1 @@
+# scale-of-science-fiction-hardness
